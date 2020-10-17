@@ -1,4 +1,4 @@
-# Weight Loss
+# Weight Loss and Stoicism
 1. 3 Things Learnt from Stoicism
    1. Let go of all things that you can't control i.e. thoughts on others.
       1. Guilt, shame, fear all let go.
@@ -12,7 +12,7 @@
 # Could Seneca Laugh at Himself
 1. Went over Letter #12 - acceptance of old age and Seneca's self-deprecative satire.
 
-# On Anger and Boxing
+# On Anger, Boxing and Stoicism
 1. Stoic boxing - Temperance is the first virtue.
 2. Refrain from anger.
 3. Well applied reason and tactics.
