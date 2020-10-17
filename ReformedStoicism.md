@@ -41,5 +41,5 @@
            2. Empowering and using our philosophy to solve problems.
            3. Exercising our agency and enjoying it.
        3. Philosophy of Empowerment: Everyone has the right to live an active, satisfying life (regardless of background).
-   9. Reformed Stoicism is Stocism with a human face.
+   9. Reformed Stoicism is Stoicism with a human face.
       1.  Never argues that someone's problems are minor in the case other's have it harder.

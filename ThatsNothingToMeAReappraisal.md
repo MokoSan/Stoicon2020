@@ -1,7 +1,7 @@
 # "That's Nothing to Me" - A Reappraisal
 
 1. Disagreeable Impression -> Check assumptions -> If you can't do anything then "That's Nothing to me".
-2. Dicotomy of control: Is this under my control? Can I do something about this? 
+2. Dichotomy of control: Is this under my control? Can I do something about this? 
 3. Passivity isn't what Stoicism is about - it's a prompt that does it really matter to "me".
 4. prohairesis - "What I really am". 
    1. Faculty of choice say "yes / no / maybe" based on perception.

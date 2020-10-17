@@ -15,7 +15,7 @@
 
 1. Concerned with Knowledge and Judgement.
 2. Truthfulness with what we say. 
-3. Rationality is one of the defining characteristcs of human beings.
+3. Rationality is one of the defining characteristics of human beings.
 4. Logical consistency is given a lot of emphasis.
 5. Make judgements of value and not only of matter of fact. 
 6. Our emotional lives are a product of the judgements we make.
@@ -31,7 +31,7 @@
    1. Rational
    2. Consistent
    3. Mentally Healthy
-   4. Not overcome by emotional upheavel
+   4. Not overcome by emotional upheaval
    5. Moderate 
    6. Courageous 
    7. Fair and Just
@@ -40,7 +40,6 @@
 7. Having good character will always be a good thing and not a bad thing.
 8. Good character generates the happiness; if you are psychologically in a mess, nothing will make you happy.
 9. Attend to yourself and your judgements - how you think about things before expecting happiness from other things.
-
 ## Physics: Interconnectedness
 
 1. Study of nature or what exists.
