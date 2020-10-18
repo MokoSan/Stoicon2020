@@ -10,8 +10,8 @@
    4. All happiness you can have it now if you leave your past behind - Marcus
    5. We burden ourselves with so many things that they weigh us down. Just lay the burden down - Epictetus.
 3. Just get rid of the burdens you are carrying.
-   1. Burdens aren't physical burdens but psychological burdens that we aren't aware that we carrying.
-4. 4 types of Burdens
+   1. Burdens aren't physical burdens but psychological burdens that we aren't aware that we are carrying.
+4. __4 Types of Burdens__
    1. __Foolishness__: Not knowing what to do and what not to do.
       1. If our judgements are correct, we don't act foolish.
       2. Anything that comes our way, it is our business or not our business.
@@ -58,5 +58,5 @@
       6. We don't anything to make others happy. 
       7. No one has the power to hurt us. We hurt ourselves.
       8. Implies, we don't have the power to hurt others. Others hurt themselves.
-      9. Why is injustice a burden? Because it hurts us! When we don't give others what is rightfully theirs, we believe that it will benefit us. Foolishness is a burden, not a road to joy.
+      9. Why is injustice a burden? Because it hurts __us__! When we don't give others what is rightfully theirs, we believe that it will benefit us. Foolishness is a burden, not a road to joy.
 5.  Foolishness => Practical Wisdom. Excess => Moderation. Fearfulness => Courage. Injustice => Justice.
