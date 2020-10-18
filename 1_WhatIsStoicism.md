@@ -56,9 +56,9 @@
 3. Making judgements consistently so that we develop the habit of thinking consistently.
 
 ##  Goals of Life
-1. Xeno: The goal of life is to live consistently.
+1. Zeno: The goal of life is to live consistently.
 2. Pupil of his: The goal of life is to live consistently with Nature.
-3. Pupil of his: The goal of life is to live consistently with what happens according to Nature.
+3. Pupil of theirs: The goal of life is to live consistently with what happens according to Nature.
    1. To embrace fate - what happens out of our control.
 4. Rational, social, harmony with natural world and without complaint.
 5. The Stoic Challenge:
