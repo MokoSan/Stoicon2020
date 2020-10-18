@@ -1,7 +1,7 @@
 # The Art of Stoic Joy
 
-1. David was always in the marble. Taking every that wasn't David.
-2. Strategy of Elimination i.e. the Elimination
+1. David was always in the marble. Taking every that wasn't David out is what Michelangelo did.
+2. Strategy of Elimination i.e. the Stoic Elimination of What's Not Needed 
    1. What should be do to create joy? -> What should we take away?
    2. Joy is always within us
       1. We have happiness within us.
@@ -59,4 +59,4 @@
       7. No one has the power to hurt us. We hurt ourselves.
       8. Implies, we don't have the power to hurt others. Others hurt themselves.
       9. Why is injustice a burden? Because it hurts us! When we don't give others what is rightfully theirs, we believe that it will benefit us. Foolishness is a burden, not a road to joy.
-   5.  Foolishness => Practical Wisdom. Excess => Moderation. Fearfulness => Courage. Injustice => Justice.
+5.  Foolishness => Practical Wisdom. Excess => Moderation. Fearfulness => Courage. Injustice => Justice.
